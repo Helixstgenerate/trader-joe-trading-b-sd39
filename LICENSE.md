@@ -1,4 +1,4 @@
-# 
+# high-frequency trader joe trading bot Strategy | rug-pull-detection + liquidity-pool-analysis is the best trader joe trading bot, featuring rug-pull-detection and
 
 
 
